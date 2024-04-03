@@ -2,9 +2,9 @@
 
 ==================================
 
-**15 Maret 2024 Ptht 16 X Uws Buyer Rate 35 = 560 Dl**
+**15 Maret 2024 Ptht 16 X Uws Buyer Rate 35 = 560 DL**
 
-**15 Maret 2024 PNB 400k = 880 Dl**
+**15 Maret 2024 PNB 400k = 880 DL**
 
 **16 Maret 2024 PTHT 40 X Uws Buyer Rate 35 = 14 BGL**
 
